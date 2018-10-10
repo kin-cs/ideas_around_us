@@ -1,6 +1,17 @@
 Ideas Around Us
 ======
 
+10-10
+-----
+### Chamomile Tea: Many benefits from it
+- may improve sleep quality
+- may promote digestive health
+- may protect some kinds of cancers
+- may benefit blood sugar control
+- may improve heart health
+ref: https://www.healthline.com/nutrition/5-benefits-of-chamomile-tea#section5
+
+
 09-22
 -----
 ### A book: 寫給每個人的基本收入讀本 (Basic Income: And How We Can Make It Happen)
