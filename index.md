@@ -1,6 +1,13 @@
 Ideas Around Us
 ======
 
+10-17
+----
+### Intermittent fasting
+- 2 most popular methods
+  - The 16/8 method: Also called the Leangains protocol, it involves skipping breakfast and restricting your daily eating period to 8 hours, such as 1–9 p.m. Then you fast for 16 hours in between.
+  - Eat-Stop-Eat: This involves fasting for 24 hours, once or twice a week, for example by not eating from dinner one day until dinner the next day.
+
 10-10
 -----
 ### Chamomile Tea: Many benefits from it
