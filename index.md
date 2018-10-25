@@ -1,6 +1,11 @@
 Ideas Around Us
 ======
 
+10-25
+---
+### Summing of Geometric Series
+![img](https://www.mathsisfun.com/algebra/images/partial-sum-i.gif)
+
 10-17
 ----
 ### Intermittent fasting
