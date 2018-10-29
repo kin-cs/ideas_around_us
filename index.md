@@ -1,6 +1,10 @@
 Ideas Around Us
 ======
 
+10-29
+---
+### culture eats strategy for breakfast, by Peter Drucker
+
 10-25
 ---
 ### Summing of Geometric Series
