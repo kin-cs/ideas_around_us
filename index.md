@@ -1,6 +1,10 @@
 Ideas Around Us
 ======
 
+11-25
+---
+### Brain Dump - to write everything down on the paper or store it somewhere, untangle your brain
+
 10-29
 ---
 ### culture eats strategy for breakfast, by Peter Drucker
