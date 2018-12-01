@@ -1,6 +1,11 @@
 Ideas Around Us
 ======
 
+12-01
+---
+### Authentic Happiness
+- Key 1: finding the strength
+
 11-25
 ---
 ### Brain Dump - to write everything down on the paper or store it somewhere, untangle your brain
