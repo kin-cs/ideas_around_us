@@ -4,7 +4,47 @@ Ideas Around Us
 12-01
 ---
 ### Authentic Happiness
-- Key 1: finding the strength
+- Key 1: finding the strengths ==> get the purposes in the world
+- Key 2: What you do
+  1. Job: for getting the money - 9-5, no advancement at all
+  2. Occupation: advancing from your job, can be promoted, don't necessarily love it
+  3. Calling: Finding your strengths, and put into use for the world
+- Key 3: Six core virtues:
+  1. Wisdom
+    - Perspective
+    - Social intelligence
+    - Street smarts
+    - Open mindedness
+    - Love of learning
+    - Curiosity
+  2. Courage
+    - Honesty
+    - Perseverance
+    - Bravery
+  3. Love
+    - Love
+    - Kindness
+    - Generosity
+  4. Justice
+    - Leadership
+    - Fairness
+    - Loyalty
+  5. Temperance
+    - Caution
+    - Modesty
+    - Self-control
+  6. Transcendence
+    - Enthusiasm
+    - Forgiveness
+    - Humor
+    - Faith
+    - Gratitude
+    - Appreciation
+- Key 4: Apply these strengths into:
+  - Work 
+  - Love Life
+  - (Raising Children)
+- Key Quote: "Positive emotion alienated with character leads to emptiness"
 
 11-25
 ---
