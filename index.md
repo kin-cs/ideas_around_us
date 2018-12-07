@@ -1,6 +1,10 @@
 Ideas Around Us
 ======
 
+12-07
+---
+Attend an AI meeting in BKK last week - https://www.datatouille.org/
+
 12-01
 ---
 ### Authentic Happiness
