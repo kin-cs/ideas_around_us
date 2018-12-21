@@ -1,6 +1,20 @@
 Ideas Around Us
 ======
 
+12-19
+---
+## TODO List Formula
+#### Key points
+- Write the desire outcomes next to the tasks
+- Break projects down to individual tasks
+- Make a deadline
+- Limit Today tasks to 7 (at-least 15 mins each)
+- Make the lists for projects, types and locations
+- Mark a priority
+- Estimate the time it will be spent
+- Use a verb to describe the TODO (be specific)
+- Note the task which needs to require input from the other and also put a deadline for that deliverable (by the others0
+
 12-07
 ---
 Attend an AI meeting in BKK last week - https://www.datatouille.org/
