@@ -1,6 +1,15 @@
 Ideas Around Us
 ======
 
+01-18
+---
+- A study shows that putting a Smiley Emoticon in the Electric Bill for those who saved more Energy, making more people save energy:
+  - https://sparq.stanford.edu/solutions/emoticons-reduce-energy-use
+
+
+2018 in Below  
+===
+
 12-19
 ---
 ## TODO List Formula
