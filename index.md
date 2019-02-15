@@ -1,6 +1,11 @@
 Ideas Around Us
 ======
 
+02-15
+---
+- J sound: /dʒ/
+  - I've been pronouncing all wrong for this character for 3 decades... interesting. Lesson learned!
+
 01-18
 ---
 - A study shows that putting a Smiley Emoticon in the Electric Bill for those who saved more Energy, making more people save energy:
