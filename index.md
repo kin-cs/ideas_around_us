@@ -4,7 +4,7 @@ Ideas Around Us
 02-15
 ---
 - J sound: /dʒ/
-  - I've been pronouncing all wrong for this character for 3 decades... interesting. Lesson learned!
+  - I just realized this character's correct pronunication... interesting. Lesson learned!
 
 01-18
 ---
