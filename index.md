@@ -1,6 +1,12 @@
 Ideas Around Us
 ======
 
+03-27
+---
+- **Charlie Mungers**
+  - a card playing's lesson, “What you have to learn is to fold early when the odds are against you, or if you have a big edge, back it heavily because you don't get a big edge often. Opportunity comes, but it doesn't come often, so seize it when it does come.”
+  - "I constantly see people rise in life who are not the smartest, sometimes not even the most diligent, but they are learning machines. They go to bed every night a little wiser than they were when they got up and boy does that help, particularly when you have a long run ahead of you."
+  
 02-15
 ---
 - J sound: /dʒ/
